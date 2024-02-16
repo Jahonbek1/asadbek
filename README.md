@@ -1,0 +1,2 @@
+# asadbek
+ddbntmyrh,tjhsryjrwheryh,gtjduyjte
